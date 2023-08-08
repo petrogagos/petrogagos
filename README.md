@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @petrogagos
+- 👀 I’m interested in bike
+- 🌱 I’m currently learning crypto
